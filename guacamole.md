@@ -2,9 +2,9 @@
 
 ## Ingredients
 
-* avocado
-* lime
-* salt
+* Avocado
+* Lime
+* Salt
 
 
 
